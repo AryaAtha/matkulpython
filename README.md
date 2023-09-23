@@ -1,0 +1,1 @@
+saya arya saat ini lagi belanar python
